@@ -1,4 +1,4 @@
-
+Enhance Canva for macOS with updated Brushes for Canva for macOS - AI upscaling and blend modes, the #1 brush. Includes AI upscaling and blend modes for a smoother and more
 
 
 
